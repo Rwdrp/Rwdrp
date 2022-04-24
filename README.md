@@ -1,3 +1,6 @@
+## Ruwanda Prasetya
+I am Remote Sensing and GIS Analyst. Check out my profile at [LinkedIn page](https://www.linkedin.com/in/ruwanda-prasetya-12114514b/). 
+
 ### Hi there 👋
 
 - 🔭 I’m currently working on ...
